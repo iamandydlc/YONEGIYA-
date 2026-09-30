@@ -1,1 +1,1 @@
-# YONEGIYA(夜逃げ屋)
+# YONEGI-YA(夜逃げ屋)
